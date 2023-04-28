@@ -1,1 +1,1 @@
-# SPK-Gisi-Kasus-Suspek-Covid-19
+# SPK-Gizi-Kasus-Suspek-Covid-19
